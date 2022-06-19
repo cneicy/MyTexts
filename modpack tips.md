@@ -49,3 +49,5 @@ Q:话说你觉得现在什么东西没用? A:史蒂夫最没用。
 Watashi daisuki desu~ -youyihj
 
 IC2魔改绝赞进行中。
+
+不仅有反物质，还有反人品。
